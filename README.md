@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jdvin.
+- 👀 I’m interested in the human brain, mind, and behaviour.
+- 🌱 I’m currently learning psychology.
+- 💞️ I’m looking to collaborate on all projects related to understanding the above.
+- 📫 How to reach me: josh.daniel.vinson@mgail.com

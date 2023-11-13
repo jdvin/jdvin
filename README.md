@@ -1,1 +1,1 @@
-Human and machine intelligence.  
+Biological and machine intelligence.  
